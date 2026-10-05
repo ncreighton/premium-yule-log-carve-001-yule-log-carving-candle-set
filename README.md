@@ -1,0 +1,2 @@
+# premium-yule-log-carve-001-yule-log-carving-candle-set
+Stop losing track of supplies, carving progress, and candle-making steps when your yule log project demands perfect coordination. The Yule Log Carving &amp; Candle Set Craft Hub is your all-in-one Notion workspace to orchestrate both crafts without chaos.  This template eliminates the friction of juggling separate to-do lists, material inventories, and
